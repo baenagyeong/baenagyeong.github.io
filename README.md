@@ -1,2 +1,0 @@
-# nagyeong.github.io
-# hello
